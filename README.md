@@ -1,0 +1,2 @@
+# endlessfun
+'Why' is infinity
